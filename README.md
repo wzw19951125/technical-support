@@ -5,7 +5,7 @@
 メールアドレス：
 1048271381@qq.com
 
-連絡先：13880645242
+連絡先：+86-13880645242
 
 ありがとうございます。
 
@@ -14,6 +14,6 @@ If you encounter any problems when using our products, please contact us by emai
 
 Email：1048271381@qq.com
 
-Contact number：13880645242
+Contact number：+86-13880645242
 
 Thank you!
